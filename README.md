@@ -12,7 +12,7 @@
 
 𓏵 . . (ꈍ◡ꈍ) big fan of resident evil, red dead redemption, final fantasy, silent hill, the last of us, dead by daylight (vd too)
 
-˶ᵔᵕᵔ˶ ( roblox games > bee swarm sim, flee the facility, fling things and people, incredible blox, blade ball, nullscape, bad things, exodo, untitled tag game
+˶ᵔᵕᵔ˶ ( roblox games > bee swarm sim, flee the facility, fling things and people, incredible blox, case file 1225, blade ball, nullscape, bad things, exodo, untitled tag game
 literally any myth/obscure game, im a hunting enthusiast )
 
 u⩊u ( visual novels > 14dwy, tkatb, tfc, dd, fm, w1wd, mosd, kv01, ts, unr ) ifykyk ok? these r my faves !!
