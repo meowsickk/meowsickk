@@ -23,6 +23,8 @@ u⩊u ( visual novels > 14dwy, tkatb, tfc, dd, fm, w1wd, mosd, kv01, ts, unr ) i
 
 ˶°ㅁ° ( movies > arrival, saw, irobot, exmachina, midsummer, the human centipede, the pianist, the golden compass, alice in w, radioactive, vanhelsing, amelie, choclat, 47 metres down, the midnight manager)   
 
+ ^ヮ^ ( music > i enjoy a lot of trans music and listen to pretty much anything . . but here r some faves, stomach book, cannelle, pinkpantheress, onefang, pichuu, maple, oni.wave, maebi, girls rituals, mindless self indulgence, akoge, morgue / morgue vault, devi mcallion, chase icon, clara la san ) 
+
 𓏵 . . in regards to the way i act, i've been diagnosed with (aspergers syndrome) autism, (mild) dyslexia, (in close relation to ADHD) HSP, OCD, and PTSD 
 i may misinterprit/misunderstand situations, find it difficult to communicate my feelings across and or shutdown . . 
 
