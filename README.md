@@ -23,7 +23,7 @@ u⩊u ( visual novels > 14dwy, tkatb, tfc, dd, fm, w1wd, mosd, kv01, ts, unr ) i
 
 ˶°ㅁ° ( movies > arrival, saw, irobot, exmachina, midsummer, the human centipede, the pianist, the golden compass, alice in w, radioactive, vanhelsing, amelie, choclat, 47 metres down, the midnight manager)   
 
-𓏵 . . in regards to the way i act, i've been diagnosed with (aspergers syndrome) autism, (mild) dyslexia, HSP, OCD, and PTSD 
+𓏵 . . in regards to the way i act, i've been diagnosed with (aspergers syndrome) autism, (mild) dyslexia, (in close relation to ADHD) HSP, OCD, and PTSD 
 i may misinterprit/misunderstand situations, find it difficult to communicate my feelings across and or shutdown . . 
 
 𓏵 . . ints > anyone that likes my interests !! anyone really that doesn't meet the dni criteria 
