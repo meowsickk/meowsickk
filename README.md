@@ -28,4 +28,4 @@ i may misinterprit/misunderstand situations, find it difficult to communicate my
 
 𓏵 . . ints > anyone that likes my interests !! anyone really that doesn't meet the dni criteria 
 
-𓏵 . . dnis > - 13's, proships, darkships and allat, political talkrs, gore lovers, vent dumpers, generally toxic or problematic people 
+𓏵 . . dnis > - 13's, proships, darkships and allat, political talkrs, gore lovers, (overly) hypersexual usrs, vent dumpers, generally toxic or problematic people 
