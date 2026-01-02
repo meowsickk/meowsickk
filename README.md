@@ -21,7 +21,7 @@ u⩊u ( visual novels > 14dwy, tkatb, tfc, dd, fm, w1wd, mosd, kv01, ts, unr ) i
 
 ¬_¬" ( manga / anime > kamisama kiss, death note, vampire knight, silent voice, apothecary diaries (before the popularity ok), toilet bound hanako kun, soul eater, angels of death, diabolik lovers, seraph of the end,  etc. . )
 
-˶°ㅁ° ( movies > arrival, saw, irobot, exmachina, midsummer, the human centipede, the pianist, the boy in striped pjmas, amelie, choclat, 47 metres down, the midnight manager)   
+˶°ㅁ° ( movies > arrival, saw, irobot, exmachina, midsummer, the human centipede, the pianist, the golden compass, alice in w, radioactive, vanhelsing, amelie, choclat, 47 metres down, the midnight manager)   
 
 𓏵 . . in regards to the way i act, i've been diagnosed with (aspergers syndrome) autism, (mild) dyslexia, HSP, OCD, and PTSD 
 i may misinterprit/misunderstand situations, find it difficult to communicate my feelings across and or shutdown . . 
